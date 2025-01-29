@@ -7,6 +7,6 @@ Diego Duran:
 My hobbies are soccer, video games and snowboarding
 
 Diego Garcia:
-- my hobbies are baseball and sports gambling. 
+my hobbies are baseball and sports gambling. I am from Texas
 
 This is Tyler, and I like video games and basketball. I was from El paso, Texas.
