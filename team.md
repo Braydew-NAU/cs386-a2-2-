@@ -6,6 +6,7 @@ Mitchell Morris: I am Palestinian but live in Colorado whenever I am not at scho
 Diego Duran:
 My hobbies are soccer, video games and snowboarding
 
-Diego Garcia
+Diego Garcia:
+- my hobbies are baseball and sports gambling. 
 
 This is Tyler, and I like video games and basketball. I was from El paso, Texas.
