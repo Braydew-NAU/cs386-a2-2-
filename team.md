@@ -5,3 +5,5 @@ Mitchell Morris: I am Palestinian but live in Colorado whenever I am not at scho
 Tyler Edwards
 Diego Duran
 Diego Garcia
+
+This is Tyler, and I like video games and basketball. I was from El paso, Texas.
